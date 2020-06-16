@@ -56,6 +56,6 @@ description: "Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit
 - [ ] [Teufel Real Blue NC](https://www.teufelaudio.nl/koptelefoons/real-blue-nc-p16586.html?partner_id=media-nl.qr.reshift.realkoptelefoon) (€ 229,99)
 - [ ] [Asus D509BA-EJ052T - Laptop - 15.6 Inch](https://www.bol.com/nl/p/asus-d509ba-ej052t-laptop-15-6-inch/9200000125655210/?s2a=#product_specifications) (€333,59)
 
-
+## Delen
 
 **Je kunt dit lijstje door delen door het linkje <https://marnix0810.github.io/private-pages/Verlanglijstje> naar iemand te sturen.**
