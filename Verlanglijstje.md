@@ -6,14 +6,15 @@ description: Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit 
 
 
 # Boeken
-:arrow_forward: **[Lijstje vindbaar bij bol.com](https://www.bol.com/nl/verlanglijstje/1y356463383439643430623863323862333832643037616137/index.html)**
+-->​ **[Lijstje vindbaar bij bol.com](https://www.bol.com/nl/verlanglijstje/1y356463383439643430623863323862333832643037616137/index.html)**
+
 ## Alice Oseman
 - [x] [Heartstopper Volume One](https://www.bol.com/nl/p/heartstopper-volume-one/9200000098883479/)
 - [ ] [Heartstopper Volume Two](https://www.bol.com/nl/p/heartstopper-volume-two/9200000104700117/)
 
 
 # CD's,
-:arrow_forward: **[Lijstje vindbaar bij bol.com](https://www.bol.com/nl/verlanglijstje/1y35646666373730643062386332383663333737373734633241zctj557/index.html)**
+-->​ **[Lijstje vindbaar bij bol.com](https://www.bol.com/nl/verlanglijstje/1y35646666373730643062386332383663333737373734633241zctj557/index.html)**
 
 ## X-Ray Spex
 - [ ] [Lets Submerge -Anthology-](https://www.bol.com/nl/p/lets-submerge-anthology/1000004004431951/)
