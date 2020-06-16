@@ -3,7 +3,7 @@ title: "Verlanglijst Marnix Bloeiman"
 description: "Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie in. Dus ik denk dat er altijd wel iets bij staat."
 ---
 
-# Verlanglijst Marnix Bloeiman
+# Verlanglijst
 
 ## Boeken
 -->​ **[Lijstje vindbaar bij bol.com](https://www.bol.com/nl/verlanglijstje/1y356463383439643430623863323862333832643037616137/index.html)**
