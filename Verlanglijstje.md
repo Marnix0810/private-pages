@@ -1,16 +1,9 @@
-\---
-
-​                  
-
+---
 title: Verlanglijst Marnix Bloeiman
+description: Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie in. Dus ik denk dat er altijd wel iets bij staat.
+---
 
-​                  
 
-
-
-​                  
-
-\---
 
 # Boeken
 :arrow_forward: **[Lijstje vindbaar bij bol.com](https://www.bol.com/nl/verlanglijstje/1y356463383439643430623863323862333832643037616137/index.html)**
@@ -58,4 +51,7 @@ title: Verlanglijst Marnix Bloeiman
 - [ ] [Pokemon: Black](https://www.bol.com/nl/p/pokemon-black/1004004011106952/) (€79,99)
 ## > €119
 - [ ] [Teufel Real Blue NC](https://www.teufelaudio.nl/koptelefoons/real-blue-nc-p16586.html?partner_id=media-nl.qr.reshift.realkoptelefoon) (€ 229,99)
-- [ ] **Je kunt dit lijstje door delen door het linkje <https://marnix0810.github.io/private-pages/Verlanglijstje> naar iemand te sturen.**
+
+
+
+**Je kunt dit lijstje door delen door het linkje <https://marnix0810.github.io/private-pages/Verlanglijstje> naar iemand te sturen.**
