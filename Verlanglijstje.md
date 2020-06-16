@@ -5,12 +5,14 @@ description: "Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit
 
 # Verlanglijst
 
+Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie in. Dus ik denk dat er altijd wel iets bij staat. De items staan ongeveer op volgorde van prijs.
+
 
 ## CD's,
 -->​ **[Lijstje vindbaar bij bol.com](https://www.bol.com/nl/verlanglijstje/1y35646666373730643062386332383663333737373734633241zctj557/index.html)**
 
 ### X-Ray Spex
-- [ ] [Lets Submerge -Anthology-](https://www.bol.com/nl/p/lets-submerge-anthology/1000004004431951/)
+- [ ] [Let's Submerge: The Anthology](https://www.bol.com/nl/p/lets-submerge-anthology/1000004004431951/)
 ### Tove Lo
 - [ ] [Sunshine Kitty](https://www.bol.com/nl/p/sunshine-kitty/9200000118029348/)
 - [ ] [Lady Wood](https://www.bol.com/nl/p/lady-wood/9200000064047167/)
@@ -37,7 +39,7 @@ description: "Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit
 -->​ **[Lijstje vindbaar bij bol.com](https://www.bol.com/nl/verlanglijstje/1y356463383439643430623863323862333832643037616137/index.html)**
 
 ### Alice Oseman
-- [x] [Heartstopper Volume One](https://www.bol.com/nl/p/heartstopper-volume-one/9200000098883479/)
+- [x] ~~[Heartstopper Volume One](https://www.bol.com/nl/p/heartstopper-volume-one/9200000098883479/)~~
 - [ ] [Heartstopper Volume Two](https://www.bol.com/nl/p/heartstopper-volume-two/9200000104700117/)
 
 
@@ -46,7 +48,7 @@ description: "Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit
 ### €10 - €30
 
 ### €30 - €50
-- [x] [Security Key NFC by Yubico](https://www.yubico.com/product/security-key-nfc-by-yubico) ook beschikbaar [bij bol.com](https://www.bol.com/nl/p/yubico-fido2-u2f-security-key-nfc/9200000104561284?referrer=socialshare_pdp_androidapp) maar daar is hij duurder. (€27/€35,95)
+- [x] ~~[Security Key NFC by Yubico](https://www.yubico.com/product/security-key-nfc-by-yubico) ook beschikbaar [bij bol.com](https://www.bol.com/nl/p/yubico-fido2-u2f-security-key-nfc/9200000104561284?referrer=socialshare_pdp_androidapp) maar daar is hij duurder. (€27/€35,95)~~
 - [ ] [Bigben Draagbare Radio/CD-Speler - Kittens](https://www.bol.com/nl/p/bigben-draagbare-radio-cd-speler-kittens/9200000080008004/) (€49)
 
 - [ ] Google Home Mini - Smart speaker - Wit - Ondersteund Nederlands - Amerikaanse versie met adapter [bij bol.com](https://www.bol.com/nl/p/google-home-mini-smart-speaker-wit-ondersteund-nederlands-amerikaanse-versie-met-adapter/9200000126779884?referrer=socialshare_pdp_androidapp) (€49,95)
