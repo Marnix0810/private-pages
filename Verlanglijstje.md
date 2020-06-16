@@ -7,6 +7,9 @@ description: "Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit
 
 Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie in. Dus ik denk dat er altijd wel iets bij staat. De items staan ongeveer op volgorde van prijs.
 
+## Delen
+
+**Je kunt dit lijstje door delen door het linkje <https://marnix0810.github.io/private-pages/Verlanglijstje> naar iemand te sturen.**
 
 ## CD's,
 -->​ **[Lijstje vindbaar bij bol.com](https://www.bol.com/nl/verlanglijstje/1y35646666373730643062386332383663333737373734633241zctj557/index.html)**
