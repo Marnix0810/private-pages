@@ -5,13 +5,6 @@ description: "Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit
 
 # Verlanglijst
 
-## Boeken
--->​ **[Lijstje vindbaar bij bol.com](https://www.bol.com/nl/verlanglijstje/1y356463383439643430623863323862333832643037616137/index.html)**
-
-### Alice Oseman
-- [x] [Heartstopper Volume One](https://www.bol.com/nl/p/heartstopper-volume-one/9200000098883479/)
-- [ ] [Heartstopper Volume Two](https://www.bol.com/nl/p/heartstopper-volume-two/9200000104700117/)
-
 
 ## CD's,
 -->​ **[Lijstje vindbaar bij bol.com](https://www.bol.com/nl/verlanglijstje/1y35646666373730643062386332383663333737373734633241zctj557/index.html)**
@@ -39,6 +32,15 @@ description: "Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit
 - [ ] [When We All Fall Asleep, Where Do We Go?](https://www.bol.com/nl/p/when-we-all-fall-asleep-where-do-we-go/9200000105489972/)
 ###  Natalia Kills
 - [ ] [Trouble](https://www.bol.com/nl/p/trouble/9200000018353195/)
+
+## Boeken
+-->​ **[Lijstje vindbaar bij bol.com](https://www.bol.com/nl/verlanglijstje/1y356463383439643430623863323862333832643037616137/index.html)**
+
+### Alice Oseman
+- [x] [Heartstopper Volume One](https://www.bol.com/nl/p/heartstopper-volume-one/9200000098883479/)
+- [ ] [Heartstopper Volume Two](https://www.bol.com/nl/p/heartstopper-volume-two/9200000104700117/)
+
+
 
 ## Andere items
 ### €10 - €30
