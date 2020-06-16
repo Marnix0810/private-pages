@@ -19,6 +19,9 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 ### Marina
 - [ ] [Electra Heart](https://www.bol.com/nl/p/electra-heart/1000004012178824/)
 - [ ] [Froot](https://www.bol.com/nl/p/froot/9200000039710851/)
+### Alice Bag
+- [ ] [Sister Dynamite](https://www.bol.com/nl/p/sister-dynamite/9200000131898362/)
+- [ ] [Sister Dynamite (LP)](https://www.bol.com/nl/p/sister-dynamite/9200000131898356/)
 ### Charli XCX
 - [ ] [True Romance](https://www.bol.com/nl/p/true-romance/1000004013652145/)
 - [ ] [Charli (LP)](https://www.bol.com/nl/p/charli/9200000114388684/)
@@ -41,6 +44,8 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 ### Alice Oseman
 - [x] ~~[Heartstopper Volume One](https://www.bol.com/nl/p/heartstopper-volume-one/9200000098883479/)~~
 - [ ] [Heartstopper Volume Two](https://www.bol.com/nl/p/heartstopper-volume-two/9200000104700117/)
+### Alice Bag
+- [ ] [Violence Girl ](https://www.bol.com/nl/p/violence-girl/1001004011408348/)
 
 
 
