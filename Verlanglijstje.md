@@ -1,6 +1,6 @@
 ---
-title: Verlanglijst Marnix Bloeiman
-description: Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie in. Dus ik denk dat er altijd wel iets bij staat.
+title: "Verlanglijst Marnix Bloeiman"
+description: "Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie in. Dus ik denk dat er altijd wel iets bij staat."
 ---
 
 
