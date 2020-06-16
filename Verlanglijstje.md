@@ -46,7 +46,7 @@ description: "Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit
 ### €10 - €30
 
 ### €30 - €50
-- [x] [Security Key NFC by Yubico](https://www.yubico.com/product/security-key-nfc-by-yubico) ook beschikbaar [bij bol.com](https://www.bol.com/nl/p/yubico-fido2-u2f-security-key-nfc/9200000104561284?referrer=socialshare_pdp_androidapp) maar daar is hij duurder.
+- [x] [Security Key NFC by Yubico](https://www.yubico.com/product/security-key-nfc-by-yubico) ook beschikbaar [bij bol.com](https://www.bol.com/nl/p/yubico-fido2-u2f-security-key-nfc/9200000104561284?referrer=socialshare_pdp_androidapp) maar daar is hij duurder. (€27/€35,95)
 - [ ] [Bigben Draagbare Radio/CD-Speler - Kittens](https://www.bol.com/nl/p/bigben-draagbare-radio-cd-speler-kittens/9200000080008004/) (€49)
 
 - [ ] Google Home Mini - Smart speaker - Wit - Ondersteund Nederlands - Amerikaanse versie met adapter [bij bol.com](https://www.bol.com/nl/p/google-home-mini-smart-speaker-wit-ondersteund-nederlands-amerikaanse-versie-met-adapter/9200000126779884?referrer=socialshare_pdp_androidapp) (€49,95)
