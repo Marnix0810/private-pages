@@ -15,8 +15,9 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 
 **=> [Lijstje vindbaar bij bol.com](https://www.bol.com/nl/verlanglijstje/1y35646666373730643062386332383663333737373734633241zctj557/index.html)**
 
-### X-Ray Spex
 
+----
+### X-Ray Spex
 -  [Let's Submerge: The Anthology](https://www.bol.com/nl/p/lets-submerge-anthology/1000004004431951/)
 ### Tove Lo
 -  [Sunshine Kitty](https://www.bol.com/nl/p/sunshine-kitty/9200000118029348/)
@@ -49,6 +50,8 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 
 **=> [Lijstje vindbaar bij bol.com](https://www.bol.com/nl/verlanglijstje/1y356463383439643430623863323862333832643037616137/index.html)**
 
+
+----
 ### Alice Oseman
 -  ~~[Heartstopper Volume One](https://www.bol.com/nl/p/heartstopper-volume-one/9200000098883479/)~~
 -  [Heartstopper Volume Two](https://www.bol.com/nl/p/heartstopper-volume-two/9200000104700117/)
