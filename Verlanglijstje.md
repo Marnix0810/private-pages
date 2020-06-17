@@ -11,7 +11,7 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 
 **Je kunt dit lijstje door delen door het linkje <https://marnix0810.github.io/private-pages/Verlanglijstje> naar iemand te sturen.**
 
-## CD's
+## Muziek
 
 ### X-Ray Spex
 -  [Let's Submerge: The Anthology](https://www.bol.com/nl/p/lets-submerge-anthology/1000004004431951/)
