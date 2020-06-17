@@ -14,7 +14,10 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 ## CD's,
 -->​ **[Lijstje vindbaar bij bol.com](https://www.bol.com/nl/verlanglijstje/1y35646666373730643062386332383663333737373734633241zctj557/index.html)**
 
+
+
 ### X-Ray Spex
+
 -  [Let's Submerge: The Anthology](https://www.bol.com/nl/p/lets-submerge-anthology/1000004004431951/)
 ### Tove Lo
 -  [Sunshine Kitty](https://www.bol.com/nl/p/sunshine-kitty/9200000118029348/)
