@@ -12,7 +12,7 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 **Je kunt dit lijstje door delen door het linkje <https://marnix0810.github.io/private-pages/Verlanglijstje> naar iemand te sturen.**
 
 ## CD's,
--->​ **[Lijstje vindbaar bij bol.com](https://www.bol.com/nl/verlanglijstje/1y35646666373730643062386332383663333737373734633241zctj557/index.html)**
+=> **[Lijstje vindbaar bij bol.com](https://www.bol.com/nl/verlanglijstje/1y35646666373730643062386332383663333737373734633241zctj557/index.html)**
 
 
 
@@ -45,10 +45,11 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 -  [Trouble](https://www.bol.com/nl/p/trouble/9200000018353195/)
 
 ## Boeken
--->​ **[Lijstje vindbaar bij bol.com](https://www.bol.com/nl/verlanglijstje/1y356463383439643430623863323862333832643037616137/index.html)**
+=> **[Lijstje vindbaar bij bol.com](https://www.bol.com/nl/verlanglijstje/1y356463383439643430623863323862333832643037616137/index.html)**
+
 
 ### Alice Oseman
-- [x] ~~[Heartstopper Volume One](https://www.bol.com/nl/p/heartstopper-volume-one/9200000098883479/)~~
+-  ~~[Heartstopper Volume One](https://www.bol.com/nl/p/heartstopper-volume-one/9200000098883479/)~~
 -  [Heartstopper Volume Two](https://www.bol.com/nl/p/heartstopper-volume-two/9200000104700117/)
 ### Alice Bag
 -  [Violence Girl ](https://www.bol.com/nl/p/violence-girl/1001004011408348/)
