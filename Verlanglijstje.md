@@ -25,8 +25,11 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 -  [Froot](https://www.bol.com/nl/p/froot/9200000039710851/)
 
 ### Alice Bag
--  [Sister Dynamite](https://www.bol.com/nl/p/sister-dynamite/9200000131898362/)
+-  [Sister Dynamite (CD)](https://www.bol.com/nl/p/sister-dynamite/9200000131898362/)
 -  [Sister Dynamite (LP)](https://www.bol.com/nl/p/sister-dynamite/9200000131898356/)
+-  [Alice Bag (CD)](https://www.bol.com/nl/p/alice-bag/9200000058629933/)
+-  [Alice Bag (LP)](https://www.bol.com/nl/p/alice-bag/9200000058629859/)
+
 
 ### Charli XCX
 -  [True Romance](https://www.bol.com/nl/p/true-romance/1000004013652145/)
