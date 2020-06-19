@@ -15,6 +15,7 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 
 ### X-Ray Spex
 -  [Let's Submerge: The Anthology](https://www.bol.com/nl/p/lets-submerge-anthology/1000004004431951/)
+- [Germ Free Adolescents (colored LP)](https://www.bol.com/nl/p/germfree/9200000095110232?referrer=socialshare_pdp_androidapp)
 
 ### Tove Lo
 -  [Sunshine Kitty](https://www.bol.com/nl/p/sunshine-kitty/9200000118029348/)
