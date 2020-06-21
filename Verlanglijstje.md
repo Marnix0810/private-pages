@@ -15,7 +15,8 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 
 ### SOPHIE
 - [Product](https://www.bol.com/nl/p/product/9200000050229368?referrer=socialshare_pdp_androidapp)
-- [Oil Of Every Pearls Un-Insides (LP)](https://www.bol.com/nl/p/oil-of-every-pearls-un-insides/9200000098903691) 
+- [Oil Of Every Pearls Un-Insides (LP)](https://www.bol.com/nl/p/oil-of-every-pearls-un-insides/9200000098903691)
+
 ### Cyn
 - [Mood Swing (LP)](https://shop.cynsings.com/products/662130-MOOD-SWING)
 
@@ -27,7 +28,7 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 -  [Sunshine Kitty](https://www.bol.com/nl/p/sunshine-kitty/9200000118029348/)
 -  [Lady Wood](https://www.bol.com/nl/p/lady-wood/9200000064047167/)
 
-### Marina
+### MARINA
 -  [Electra Heart](https://www.bol.com/nl/p/electra-heart/1000004012178824/)
 -  [Froot](https://www.bol.com/nl/p/froot/9200000039710851/)
 
