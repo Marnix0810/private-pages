@@ -14,6 +14,7 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 ## Muziek
 
 ### SOPHIE
+- [Product](https://www.bol.com/nl/p/product/9200000050229368?referrer=socialshare_pdp_androidapp)
 - [Oil Of Every Pearls Un-Insides (LP)](https://www.bol.com/nl/p/oil-of-every-pearls-un-insides/9200000098903691) 
 ### Cyn
 - [Mood Swing (LP)](https://shop.cynsings.com/products/662130-MOOD-SWING)
