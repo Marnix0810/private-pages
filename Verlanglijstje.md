@@ -13,6 +13,9 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 
 ## Muziek
 
+### Cyn
+- [Mood Swing (LP)](https://shop.cynsings.com/products/662130-MOOD-SWING)
+
 ### X-Ray Spex
 -  [Let's Submerge: The Anthology](https://www.bol.com/nl/p/lets-submerge-anthology/1000004004431951/)
 - [Germ Free Adolescents (colored LP)](https://www.bol.com/nl/p/germfree/9200000095110232?referrer=socialshare_pdp_androidapp)
