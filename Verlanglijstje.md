@@ -24,7 +24,13 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 -  [Let's Submerge: The Anthology](https://www.bol.com/nl/p/lets-submerge-anthology/1000004004431951/)
 - [Germ Free Adolescents (colored LP)](https://www.bol.com/nl/p/germfree/9200000095110232?referrer=socialshare_pdp_androidapp)
 
+### Rina Sawayama
+
+- [SAWAYAMA](https://www.bol.com/nl/p/sawayama/9200000132146049/?bltgh=nToCMfYxw-w-eSxujFhCWw.1_4.5.ProductTitle)
+- [SAWAYAMA (LP)](https://www.bol.com/nl/p/sawayama/9200000132146367/?s2a=#productTitle)
+
 ### Tove Lo
+
 -  [Sunshine Kitty](https://www.bol.com/nl/p/sunshine-kitty/9200000118029348/)
 -  [Lady Wood](https://www.bol.com/nl/p/lady-wood/9200000064047167/)
 
