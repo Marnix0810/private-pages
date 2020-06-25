@@ -34,6 +34,10 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 -  [Sunshine Kitty](https://www.bol.com/nl/p/sunshine-kitty/9200000118029348/)
 -  [Lady Wood](https://www.bol.com/nl/p/lady-wood/9200000064047167/)
 
+### GIRLI
+- [Odd One Out](https://www.bol.com/nl/p/odd-one-out/9200000105966536/)
+- [Odd One Out (LP)](https://www.bol.com/nl/p/odd-one-out/9200000105379398/)
+
 ### MARINA
 -  [Electra Heart](https://www.bol.com/nl/p/electra-heart/1000004012178824/)
 -  [Froot](https://www.bol.com/nl/p/froot/9200000039710851/)
@@ -71,7 +75,6 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 ## Boeken
 
 ### Alice Oseman
--  ~~[Heartstopper Volume One](https://www.bol.com/nl/p/heartstopper-volume-one/9200000098883479/)~~
 -  [Heartstopper Volume Two](https://www.bol.com/nl/p/heartstopper-volume-two/9200000104700117/)
 
 ### Alice Bag
@@ -84,7 +87,6 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 ### €10 - €30
 
 ### €30 - €50
-- ~~[Security Key NFC by Yubico](https://www.yubico.com/product/security-key-nfc-by-yubico) ook beschikbaar [bij bol.com](https://www.bol.com/nl/p/yubico-fido2-u2f-security-key-nfc/9200000104561284?referrer=socialshare_pdp_androidapp) maar daar is hij duurder. (€27/€35,95)~~
 -  [Bigben Draagbare Radio/CD-Speler - Kittens](https://www.bol.com/nl/p/bigben-draagbare-radio-cd-speler-kittens/9200000080008004/) (€49)
 
 -  Google Home Mini - Smart speaker - Wit - Ondersteund Nederlands - Amerikaanse versie met adapter [bij bol.com](https://www.bol.com/nl/p/google-home-mini-smart-speaker-wit-ondersteund-nederlands-amerikaanse-versie-met-adapter/9200000126779884?referrer=socialshare_pdp_androidapp) (€49,95)
