@@ -22,8 +22,6 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 #### SOPHIE
 - [Product](https://www.bol.com/nl/p/product/9200000050229368?referrer=socialshare_pdp_androidapp)
 
-#### Cyn
-- [Mood Swing (LP)](https://shop.cynsings.com/products/662130-MOOD-SWING)
 
 #### X-Ray Spex
 -  [Let's Submerge: The Anthology](https://www.bol.com/nl/p/lets-submerge-anthology/1000004004431951/)
@@ -79,6 +77,9 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 #### Charli XCX
 
 - [Charli (LP)](https://www.bol.com/nl/p/charli/9200000114388684/)
+
+#### Cyn
+- [Mood Swing (LP)](https://shop.cynsings.com/products/662130-MOOD-SWING)
 
 #### GIRLI
 
