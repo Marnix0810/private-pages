@@ -13,6 +13,9 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 
 ## Muziek
 
+### Kesha
+- [High Road](https://www.bol.com/nl/p/high-road/9200000123269521/)
+
 ### SOPHIE
 - [Product](https://www.bol.com/nl/p/product/9200000050229368?referrer=socialshare_pdp_androidapp)
 - [Oil Of Every Pearls Un-Insides (LP)](https://www.bol.com/nl/p/oil-of-every-pearls-un-insides/9200000098903691)
