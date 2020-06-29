@@ -19,6 +19,10 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 
 - [High Road](https://www.bol.com/nl/p/high-road/9200000123269521/)
 
+#### Caroline  Polachek
+
+- [Pang](https://www.bol.com/nl/p/pang/9200000124600986/)
+
 #### SOPHIE
 - [Product](https://www.bol.com/nl/p/product/9200000050229368?referrer=socialshare_pdp_androidapp)
 
