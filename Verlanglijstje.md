@@ -26,6 +26,8 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 #### SOPHIE
 - [Product](https://www.bol.com/nl/p/product/9200000050229368?referrer=socialshare_pdp_androidapp)
 
+#### Princess Nokia
+-  [1992 Deluxe](https://www.bol.com/nl/p/1992-deluxe/9200000083326896/)
 
 #### X-Ray Spex
 -  [Let's Submerge: The Anthology](https://www.bol.com/nl/p/lets-submerge-anthology/1000004004431951/)
@@ -100,6 +102,9 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 #### X-Ray Spex
 
 - [Germ Free Adolescents (colored LP)](https://www.bol.com/nl/p/germfree/9200000095110232?referrer=socialshare_pdp_androidapp)
+
+#### Princess Nokia
+- [1992 DELUXE (LP)](https://www.bol.com/nl/p/1992-deluxe/9200000082884853/)
 
 ## Boeken
 
