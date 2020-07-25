@@ -73,12 +73,20 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 ####  Natalia Kills
 -  [Trouble](https://www.bol.com/nl/p/trouble/9200000018353195/)
 
+#### Sergio Mendes
+
+- [In The Key Of Joy (Deluxe Edition)](https://www.bol.com/nl/p/in-the-key-of-joy/9200000125134769/?bltgh=nTlWlaYd-SfCdnGHU-hK-Q.1_4.12.ProductTitle)
+
 ### LP's
 
 #### Alice Bag
 
 - [Alice Bag (LP)](https://www.bol.com/nl/p/alice-bag/9200000058629859/)
 - [Sister Dynamite (LP)](https://www.bol.com/nl/p/sister-dynamite/9200000131898356/)
+
+#### Sergio Mendes
+
+- [In The Key Of Joy (Deluxe Edition)](https://www.bol.com/nl/p/in-the-key-of-joy/9200000125134982/?bltgh=r-1AfeClhYangA8LXW5LQg.1_4.19.ProductTitle)
 
 #### Charli XCX
 
