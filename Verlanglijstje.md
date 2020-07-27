@@ -73,9 +73,9 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 ####  Natalia Kills
 -  [Trouble](https://www.bol.com/nl/p/trouble/9200000018353195/)
 
-#### ~~Sergio Mendes~~
+#### Sergio Mendes
 
-- ~~[In The Key Of Joy (Deluxe Edition)](https://www.bol.com/nl/p/in-the-key-of-joy/9200000125134769/?bltgh=nTlWlaYd-SfCdnGHU-hK-Q.1_4.12.ProductTitle)~~
+- [In The Key Of Joy (Deluxe Edition)](https://www.bol.com/nl/p/in-the-key-of-joy/9200000125134769/?bltgh=nTlWlaYd-SfCdnGHU-hK-Q.1_4.12.ProductTitle)
 
 ### LP's
 
