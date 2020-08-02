@@ -130,16 +130,21 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 
 
 ## Andere items
+### < €10
+- [Pfiff Multifunctionele Heuptas voor Telefoon Waterdicht](https://www.agradi.nl/pfiff-multifunctionele-heuptas-voor-telefoon-waterdicht.htm) (€8,95) (Ik laat heel vaak mijn telefoon uit mijn broekzak vallen, dit zou helpen haha)
+
 ### €10 - €30
 
 ### €30 - €50
 -  [Bigben Draagbare Radio/CD-Speler - Kittens](https://www.bol.com/nl/p/bigben-draagbare-radio-cd-speler-kittens/9200000080008004/) (€49)
+- [S View Cover Galaxy A51 wit](https://www.coolblue.nl/product/854462/samsung-galaxy-a51-s-view-book-case-wit.html) (€49) (Deze heb ik in het zwart, maar de witte is veel cooler dus tada)
+### €50 - €70
+- [JBL Tune 220TWS - Volledig draadloze oordopjes - Blauw](https://www.bol.com/nl/p/jbl-tune-220tws-volledig-draadloze-oordopjes-blauw/9200000121983802/?referrer=socialshare_pdp_www) (€68,99)
 
--  Google Home Mini - Smart speaker - Wit - Ondersteund Nederlands - Amerikaanse versie met adapter [bij bol.com](https://www.bol.com/nl/p/google-home-mini-smart-speaker-wit-ondersteund-nederlands-amerikaanse-versie-met-adapter/9200000126779884?referrer=socialshare_pdp_androidapp) (€49,95)
 ### €70 - €120
 -  [Pokemon: Black](https://www.bol.com/nl/p/pokemon-black/1004004011106952/) (€79,99)
 ### > €119
--  [Teufel Real Blue NC](https://www.teufelaudio.nl/koptelefoons/real-blue-nc-p16586.html?partner_id=media-nl.qr.reshift.realkoptelefoon) (€ 229,99)
+<!-- -  [Teufel Real Blue NC](https://www.teufelaudio.nl/koptelefoons/real-blue-nc-p16586.html?partner_id=media-nl.qr.reshift.realkoptelefoon) (€ 229,99) -->
 -  [Asus D509BA-EJ052T - Laptop - 15.6 Inch](https://www.bol.com/nl/p/asus-d509ba-ej052t-laptop-15-6-inch/9200000125655210/?s2a=#product_specifications) (€333,59)
 
 ## Delen
