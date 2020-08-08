@@ -120,6 +120,8 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 ### /Programmeren
 #### Steve Klabnik & Carol Nichols
 - [The Rust Programming Language (Covers Rust 2018)](https://nostarch.com/Rust2018) (ook [bij bol.com](https://www.bol.com/nl/p/the-rust-programming-language/9200000113128836/?bltgh=k578gPhdltNsLZKOvNtMsQ.1_4.6.ProductTitle))
+#### David Thomas
+- [The pragmatic programmer](https://www.bol.com/nl/p/the-pragmatic-programmer/9200000110185055/?referrer=socialshare_pdp_www)
 ### Alice Oseman
 -  [Heartstopper Volume Two](https://www.bol.com/nl/p/heartstopper-volume-two/9200000104700117/)
 
