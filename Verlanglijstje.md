@@ -85,7 +85,10 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 - [Sister Dynamite (LP)](https://www.bol.com/nl/p/sister-dynamite/9200000131898356/)
 
 #### Eumir Deodato
-- Love Island [-- No link available. --]
+- Love Island [No link available]
+
+#### Stan Getz
+- Recorded Fall '61 [No link available]
 
 #### Charli XCX
 
