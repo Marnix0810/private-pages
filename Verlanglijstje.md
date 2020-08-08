@@ -117,7 +117,9 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 - [1992 DELUXE (LP)](https://www.bol.com/nl/p/1992-deluxe/9200000082884853/)
 
 ## Boeken
-
+### /Programmeren
+#### Steve Klabnik & Carol Nichols
+- [The Rust Programming Language (Covers Rust 2018)](https://nostarch.com/Rust2018)
 ### Alice Oseman
 -  [Heartstopper Volume Two](https://www.bol.com/nl/p/heartstopper-volume-two/9200000104700117/)
 
