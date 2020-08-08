@@ -84,6 +84,9 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 - [Alice Bag (LP)](https://www.bol.com/nl/p/alice-bag/9200000058629859/)
 - [Sister Dynamite (LP)](https://www.bol.com/nl/p/sister-dynamite/9200000131898356/)
 
+#### Bikini Kill
+- [Revolution Girl Style Now](https://www.bol.com/nl/p/revolution-girl-style-now/9200000047714384?referrer=socialshare_pdp_androidapp)
+
 #### Eumir Deodato
 - Love Island [No link available]
 
