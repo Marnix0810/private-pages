@@ -13,6 +13,29 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 
 ## Muziek
 
+### Punk
+
+#### X-Ray Spex
+- [Coloured LP] [Germ Free Adolescents](https://www.bol.com/nl/p/germfree/9200000095110232/)
+- [CD] [Let's Submerge: The Anthology](https://www.bol.com/nl/p/lets-submerge-anthology/1000004004431951/)
+
+#### Poly Styrene
+- [LP] [Generation Indigo](https://www.bol.com/nl/p/generation-indigo/1000004011185538/)
+- [CD] [Generation Indigo](https://www.bol.com/nl/p/generation-indigo/1000004011185543/)
+
+#### Alice Bag
+- [LP] [Alice Bag](https://www.bol.com/nl/p/alice-bag/9200000058629859/)
+- [LP] [Sister Dynamite](https://www.bol.com/nl/p/sister-dynamite/9200000131898356/)
+- [CD] [Sister Dynamite](https://www.bol.com/nl/p/sister-dynamite/9200000131898362/)
+- [CD] [Alice Bag](https://www.bol.com/nl/p/alice-bag/9200000058629933/)
+
+
+#### Bikini Kill
+- [LP] [Revolution Girl Style Now](https://www.bol.com/nl/p/revolution-girl-style-now/9200000047714384?referrer=socialshare_pdp_androidapp)
+
+#### Childbirth
+- [LP] [Women's rights](https://www.bol.com/nl/p/women-s-rights/9200000047595662?referrer=socialshare_pdp_androidapp) 
+
 ### Pop
 
 #### Kesha
@@ -70,25 +93,6 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 
 ####  Natalia Kills
 -  [CD] [Trouble](https://www.bol.com/nl/p/trouble/9200000018353195/)
-
-### Punk
-
-#### X-Ray Spex
-- [Coloured LP] [Germ Free Adolescents](https://www.bol.com/nl/p/germfree/9200000095110232?referrer=socialshare_pdp_androidapp)
-
--  [CD] [Let's Submerge: The Anthology](https://www.bol.com/nl/p/lets-submerge-anthology/1000004004431951/)
-
-#### Alice Bag
-- [CD] [Sister Dynamite](https://www.bol.com/nl/p/sister-dynamite/9200000131898362/)
-- [CD] [Alice Bag](https://www.bol.com/nl/p/alice-bag/9200000058629933/)
-- [LP] [Alice Bag](https://www.bol.com/nl/p/alice-bag/9200000058629859/)
-- [LP] [Sister Dynamite](https://www.bol.com/nl/p/sister-dynamite/9200000131898356/)
-
-#### Bikini Kill
-- [LP] [Revolution Girl Style Now](https://www.bol.com/nl/p/revolution-girl-style-now/9200000047714384?referrer=socialshare_pdp_androidapp)
-
-#### Childbirth
-- [LP] [Women's rights](https://www.bol.com/nl/p/women-s-rights/9200000047595662?referrer=socialshare_pdp_androidapp) 
 
 ### Country rap
 #### Yelawolf
