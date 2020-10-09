@@ -58,7 +58,6 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 #### Rina Sawayama
 
 - [CD] [SAWAYAMA](https://www.bol.com/nl/p/sawayama/9200000132146049/?bltgh=nToCMfYxw-w-eSxujFhCWw.1_4.5.ProductTitle)
-- [LP] [SAWAYAMA](https://www.bol.com/nl/p/sawayama/9200000132146367/?s2a=#productTitle)
 
 #### Tove Lo
 
@@ -81,11 +80,7 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 #### Cyn
 - [LP] [Mood Swing](https://shop.cynsings.com/products/662130-MOOD-SWING)
 
-#### Icona Pop
--  [CD] [This Is... Icona Pop](https://www.bol.com/nl/p/this-is-icona-pop/9200000019503828/)
-
 #### Avril Lavigne
--  [CD] [Avril Lavigne](https://www.bol.com/nl/p/avril-lavigne/9200000020343531/)
 -  [CD] [The Best Damn Thing](https://www.bol.com/nl/p/the-best-damn-thing/1000004004997198/)
 
 #### Billie Eilish
@@ -118,8 +113,6 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 ### /Programmeren
 #### Steve Klabnik & Carol Nichols
 - [The Rust Programming Language (Covers Rust 2018)](https://nostarch.com/Rust2018) (ook [bij bol.com](https://www.bol.com/nl/p/the-rust-programming-language/9200000113128836/?bltgh=k578gPhdltNsLZKOvNtMsQ.1_4.6.ProductTitle))
-#### David Thomas
-- [The pragmatic programmer](https://www.bol.com/nl/p/the-pragmatic-programmer/9200000110185055/?referrer=socialshare_pdp_www)
 ### Alice Oseman
 -  [Heartstopper Volume Two](https://www.bol.com/nl/p/heartstopper-volume-two/9200000104700117/)
 
@@ -144,8 +137,7 @@ Op deze pagina zet ik alles wat ik graag zou willen hebben, er zit veel variatie
 ### €70 - €120
 -  [Pokemon: Black](https://www.bol.com/nl/p/pokemon-black/1004004011106952/) (€79,99)
 ### > €119
-<!-- -  [Teufel Real Blue NC](https://www.teufelaudio.nl/koptelefoons/real-blue-nc-p16586.html?partner_id=media-nl.qr.reshift.realkoptelefoon) (€ 229,99) -->
--  [Asus D509BA-EJ052T - Laptop - 15.6 Inch](https://www.bol.com/nl/p/asus-d509ba-ej052t-laptop-15-6-inch/9200000125655210/?s2a=#product_specifications) (€333,59)
+-  [Teufel Real Blue NC](https://www.teufelaudio.nl/koptelefoons/real-blue-nc-p16586.html?partner_id=media-nl.qr.reshift.realkoptelefoon) (€ 229,99)
 
 ## Delen
 
